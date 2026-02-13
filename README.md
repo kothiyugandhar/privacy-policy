@@ -13,4 +13,4 @@ Link to AdMob Privacy Policy
 Security
 We value your trust in providing us your personal information, thus we are striving to use commercially acceptable means of protecting it.
 Contact Us
-If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at: [abhikoti79@gmail.com]
+If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at: [lordvinayaka44@gmail.com]
