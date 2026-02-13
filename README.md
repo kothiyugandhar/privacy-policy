@@ -1,5 +1,5 @@
 Privacy Policy for kentimer
-Abhi built the Abhi Yogi app as a Free app. This SERVICE is provided by Abhi at no cost and is intended for use as is.
+Abhi built the kentimer app as a Free app. This SERVICE is provided by Abhi at no cost and is intended for use as is.
 Information Collection and Use
 We do not collect any personally identifiable information from our users.
 Log Data
